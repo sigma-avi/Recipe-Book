@@ -3,7 +3,6 @@
 ![Screenshot (4)](https://github.com/sigma-avi/Recipe-Book/assets/134030689/2c7987c8-36e8-41ca-af77-3b599c5ef1bb)
 
 
-![Screenshot (5)](https://github.com/sigma-avi/Recipe-Book/assets/134030689/e35593eb-3ced-4120-8fa9-9a472447df3c)
 
 ![Screenshot (6)](https://github.com/sigma-avi/Recipe-Book/assets/134030689/a8ed28c4-c716-43a4-a909-64731be9de14)
 
